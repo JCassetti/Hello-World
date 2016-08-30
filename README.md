@@ -1,2 +1,5 @@
 # Hello-World
-just another repository
+I am so smrt
+S-M-R-T
+I am so smrt
+S-M-R-T
